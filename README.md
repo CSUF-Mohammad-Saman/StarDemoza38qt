@@ -1,1 +1,0 @@
-# StarDemoza38qt
